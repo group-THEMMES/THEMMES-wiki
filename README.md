@@ -1,2 +1,2 @@
-# Please go to the main wiki page 📘 
+# Please go to the main Wiki page 📘 
 
